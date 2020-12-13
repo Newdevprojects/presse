@@ -2,4 +2,4 @@
 
 > Press Review
 
-Permalink : [https://newdevprojects.github.io/presse/](https://newdevprojects.github.io/presse/)
+Permalink : [https://newdevprojects.github.io/presse/presse.html](https://newdevprojects.github.io/presse/presse.html)

@@ -1,0 +1,11 @@
+https://www.humanite.fr/violences-la-prefecture-de-police-en-flagrant-delit-de-mensonge-696928#xtor=RSS-1
+
+
+# Violences. La préfecture de police en flagrant délit de mensonge
+
+> Mediapart publie une vidéo montrant un policier tirer sans raison sur des jeunes, lors d’une interpellation à Paris, en 2019.
+
+Et une affaire de violence policière de plus ! Mediapart a publié, dimanche 29 novembre, une vidéo montrant six jeunes, n’ayant commis aucun délit, violemment interpellés. L’histoire se passe dans la nuit du 30 avril 2019. Deux heures du matin, bois de Boulogne à Paris. Six jeunes de 16 à 22 ans sont dans une voiture, ils reviennent d’une soirée entre amis. Soudain, trois véhicules les bloquent à un feu rouge. Huit hommes armés les mettent en joue. L’un d’entre eux tire sans sommation à deux reprises, visant la tête de Paul, le conducteur. Les balles passent tout près. Non, ce ne sont pas des braqueurs qui veulent les dépouiller, comme ils l’ont d’abord cru, mais des policiers de la brigade anticriminalité, sans gyrophare ni brassard, qui les suspectent sans aucune preuve d’un vol de sac à main.
+
+Les seuls enregistrements des caméras de vidéosurveillance ne seront remis à Paul qu’en juin dernier, suite aux multiples demandes de son avocat auprès du parquet de Paris. Plus d’un an après les faits, la préfecture de police n’a pris aucune mesure contre les policiers. Contacté par Mediapart, elle a même répondu que _« le parquet a conclu à la légitime défense »_. Faux. L’enquête vient de se terminer et les policiers pourraient bien être poursuivis. Et les images sont sans appel. Mediapart constate qu’aucune mesure n’a été décidée par le préfet Didier Lallement à l’encontre de ces agents. Paul s’interroge. _« Je ne sais pas si la couleur de ma peau a eu une incidence. Certains d’entre nous étant métis... Les policiers m’ont traité d’“enculé” et de “fils de pute”. »_ Traumatisé, le jeune homme de 22 ans a eu une incapacité totale de travail de quarante jours et a été contraint d’interrompre ses études, sujet à des _« crises de pleurs »_ et des _« ruminations centrées sur la peur qu’il a eue de mourir »,_ selon l’expertise psychiatrique.
+<link rel="stylesheet" href="https://newdevprojects.github.io/ACV-CSC/kult.css">
